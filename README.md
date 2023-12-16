@@ -5,7 +5,4 @@
 - 📫 How to reach me [...](https://mega.nz/folder/aMdCXS7T#b6lgg2Bq-7RpA3uPaE1SKA)
 
 <!---
-Hyder11111/Hyder11111 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->https://mega.nz/folder/aMdCXS7T#b6lgg2Bq-7RpA3uPaE1SKA
-https://mega.nz/folder/aMdCXS7T#b6lgg2Bq-7RpA3uPaE1SKA
+Hi. How are you? Sub to my project please: https://mega.nz/folder/zVVGSaIY#-SVAOy-Sk51Wspow5PbxeA
